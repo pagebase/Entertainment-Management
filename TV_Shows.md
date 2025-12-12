@@ -7,7 +7,7 @@
 7. ~~[Ballard](https://www.youtube.com/watch?v=9nKRJGXgK0Q&t=48)~~
 8. ~~[Dexter: Resurrection](https://youtu.be/84o1Q6fB20k?feature=shared)~~ (26 Sep 2025)
 9. [Foundation](https://youtu.be/X4QYV5GTz7c?si=AX47NSAYd3wgFbyR)
-10. ~~[The survivors](https://www.youtube.com/watch?v=c69c1P-EURg&t=11)~~
+10. [The survivors](https://www.youtube.com/watch?v=c69c1P-EURg&t=11)
 11. [Legion](https://www.youtube.com/watch?v=4SZ3rMMYBLY&t=36)
 12. [The OA](https://www.youtube.com/watch?v=DvHJtez2IlY&t=16)
 13. [Lost](https://www.youtube.com/watch?v=KTu8iDynwNc&t=14)
@@ -21,3 +21,12 @@
 21. [True Detective](https://youtu.be/fVQUcaO4AvE?feature=shared)
 22. [The man in the high castle](https://youtu.be/zzayf9GpXCI?si=mOP0pMOR3zDm-Z1g)
 23. [The Witcher](https://www.youtube.com/watch?v=ndl1W4ltcmg)
+24. [Hannibal](https://youtu.be/Es3B24z8fdA)
+25. [Fringe](https://youtu.be/29bSzbqZ3xE)
+26. [Succession](https://youtu.be/OzYxJV_rmE8)
+27. [Banshee](https://youtu.be/VI7haj7HTCA)
+28. [Mr. Robot](https://youtu.be/N6HGuJC--rk)
+29. [Narcos](https://youtu.be/xl8zdCY-abw)
+30. [Sherlock](https://youtu.be/y9ZouUyPKx8)
+31. [Dark](https://youtu.be/rrwycJ08PSA)
+32. [Breaking Bad](https://youtu.be/HhesaQXLuRY)
