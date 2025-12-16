@@ -22,7 +22,3 @@
 22. [Polar](https://www.youtube.com/watch?v=oMHwRal-AR8&t=84)
 23. [Lucy](https://www.youtube.com/watch?v=bN7ksFEVO9U&t=18)
 24. [TRON:Ares](https://www.youtube.com/watch?v=YShVEXb7-ic)
-
-25. [Avenger](fgfgfg)
-26. [Robot](dfdfdf)
-27. [Sex](sxsdsdsdsd)
