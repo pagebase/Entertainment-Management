@@ -1,4 +1,5 @@
 import re
+import sys
 
 # Add new tv show
 def add_new_tv_show(tv_show_name, trailer_URL):
@@ -134,3 +135,5 @@ if __name__=="__main__":
             else:
                 print("Not found anything!")
                 print("-"*50)
+        elif user_choice==7:
+            sys.exit()
