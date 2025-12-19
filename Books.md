@@ -1,6 +1,6 @@
 # Table of content
 
-1.[**Limitless** by *Jim Kwik*](#limitless-by-jim-kwik)
+1. [**Limitless** by *Jim Kwik*](#limitless-by-jim-kwik)
 
 2. [**Nexus: A Brief History of Information Networks from the Stone Age to AI** by *Yuval Noah Harari*]()
 
