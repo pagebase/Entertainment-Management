@@ -5,6 +5,8 @@
 2. [**Nexus: A Brief History of Information Networks from the Stone Age to AI** by *Yuval Noah Harari*]()
 
 3. [**Deep Work** by *Cal Newport*]()
+4. [**THE ART OF BEING ALONE: Solitude is My Home Loneliness was My Cage** by *Renuka Gavrani*]()
+5. [**The Art of Laziness: Overcome Procrastination & Improve Your Productivity**]()
 ---
 
 # **Limitless** by *Jim Kwik*
