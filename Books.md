@@ -7,6 +7,7 @@
 3. [**Deep Work** by *Cal Newport*]()
 4. [**THE ART OF BEING ALONE: Solitude is My Home Loneliness was My Cage** by *Renuka Gavrani*]()
 5. [**The Art of Laziness: Overcome Procrastination & Improve Your Productivity**]()
+6. [**The Body Keeps the Score: Brain, Mind, and Body in the Healing of Trauma** by *Bessel van der Kolk*]()
 ---
 
 # **Limitless** by *Jim Kwik*
