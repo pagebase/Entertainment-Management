@@ -23,3 +23,4 @@
 23. [Lucy](https://www.youtube.com/watch?v=bN7ksFEVO9U&t=18)
 24. [TRON:Ares](https://www.youtube.com/watch?v=YShVEXb7-ic)
 25. [David](https://youtu.be/gWgyI6_lR0A)
+26. [All quiet on the western front](https://youtu.be/hf8EYbVxtCY)
