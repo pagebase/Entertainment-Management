@@ -18,7 +18,7 @@
 18. ~~[Chernobyl](https://youtu.be/s9APLXM9Ei8?feature=shared)~~
 19. [All of Us Are Dead](https://www.youtube.com/watch?v=IN5TD4VRcSM&t=37)
 20. ~~[Alice in Borderland](https://www.youtube.com/watch?v=49_44FFKZ1M&t=6)~~ (30 Nov 2025)
-21. [True Detective](https://youtu.be/fVQUcaO4AvE?feature=shared)
+21. ~~[True Detective](https://youtu.be/fVQUcaO4AvE?feature=shared)~~ (25 Dec 2025)
 22. [The man in the high castle](https://youtu.be/zzayf9GpXCI?si=mOP0pMOR3zDm-Z1g)
 23. [The Witcher](https://www.youtube.com/watch?v=ndl1W4ltcmg)
 24. [Hannibal](https://youtu.be/Es3B24z8fdA)
