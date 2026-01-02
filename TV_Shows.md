@@ -35,3 +35,7 @@
 35. [Game of Thrones](https://youtu.be/KPLWWIOCOOQ)
 36. [Peaky Blinders](https://youtu.be/oVzVdvGIC7U)
 37. [Better Call Saul](https://youtu.be/9q4qzYrHVmI)
+38. [Vikings](https://youtu.be/9GgxinPwAGc)
+39. [The walking dead](https://youtu.be/sfAc2U20uyg)
+40. [The wire](https://youtu.be/1S5khOZ1wBs)
+41. [The sopranos](https://youtu.be/KMx4iFcozK0)
