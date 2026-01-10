@@ -12,3 +12,4 @@
 12. [SHADOW OF THE TOMB RAIDER](https://youtu.be/vBCeSQSCrqY)
 13. [A WAY OUT](https://youtu.be/G5LQWKfwi5A)
 14. [DETROIT BECOME HUMAN ](https://youtu.be/0aoHlwS0i0I)
+15. [Elden Ring](#)
