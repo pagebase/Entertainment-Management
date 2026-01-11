@@ -48,7 +48,7 @@
 48. [Lucifer](https://youtu.be/X4bF_quwNtw)
 49. [Westworld](https://youtu.be/9BqKiZhEFFw)
 50. [Homeland](https://youtu.be/KyFmS3wRPCQ)
-51. [Ozark](https://youtu.be/5hAXVqrljbs)
+51. ~~[Ozark](https://youtu.be/5hAXVqrljbs)~~
 52. [Sons of anarchy](https://youtu.be/paBZJJXUEtg)
 53. [Fargo](https://youtu.be/ju75Sd4yAZw)
 54. [The mandalorian](https://youtu.be/aOC8E8z_ifw)
