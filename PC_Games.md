@@ -1,7 +1,7 @@
 1. ~~[GTA V](https://youtu.be/wB5Xt_2Rh9M)~~
 2. [RDR 2](#)
 3. [Cyberepunk 2077](#)
-4. [UNCHARTED 4: A Thief's End](https://youtu.be/d1fFEP9OFPI)
+4. ~~[UNCHARTED 4: A Thief's End](https://youtu.be/d1fFEP9OFPI)~~
 5. [Hogwarts Legacy](https://youtu.be/wNfZ8vJi4L8)
 6. [CALL OF DUTY WW2](https://youtu.be/jAChlMWt45s)
 7. [CALL OF DUTY VANGUARD](https://youtu.be/GtnLfj3hrCo)
