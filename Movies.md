@@ -21,6 +21,6 @@
 21. [Detroit](https://youtu.be/HFeWsDpy9y0?si=MShx87XZSHKmeXck)
 22. [Polar](https://www.youtube.com/watch?v=oMHwRal-AR8&t=84)
 23. [Lucy](https://www.youtube.com/watch?v=bN7ksFEVO9U&t=18)
-24. [TRON:Ares](https://www.youtube.com/watch?v=YShVEXb7-ic)
+24. [TRON:Ares](https://www.youtube.com/watch?v=YShVEXb7-ic) (13 Feb 2026)
 25. [David](https://youtu.be/gWgyI6_lR0A)
 26. [All quiet on the western front](https://youtu.be/hf8EYbVxtCY)
