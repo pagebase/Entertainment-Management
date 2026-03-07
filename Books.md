@@ -6,3 +6,4 @@
 6. [**The 7 Habits of Highly Effective People** by *Stephen R. Covey*](#)
 7. [**Essentialism** by *Greg McKeown*](#)
 8. [**Thinking, Fast and Slow** by *Daniel Kahneman*](#)
+9. [**Love Machines: How Artificial Intelligence is Transforming Our Relationships** by *James Muldoon*](#)
