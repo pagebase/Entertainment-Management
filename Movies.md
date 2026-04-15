@@ -18,3 +18,6 @@
 18. ~~[Mercy](https://www.youtube.com/watch?v=dSS4yqd0x6o)~~ (6 Mar 2026)
 19. ~~[One battle after another](https://www.youtube.com/watch?v=feOQFKv2Lw4&t=3)~~ (1 Apr 2026)
 20. ~~[Dune](https://www.youtube.com/watch?v=n9xhJrPXop4&t=2)~~
+21. ~~[JUMANJI: WELCOME TO THE JUNGLE](https://youtu.be/2QKg5SZ_35I?si=iZD1gNNICOi6qpN-)~~
+22. ~~[JUMANJI: THE NEXT LEVEL](https://youtu.be/rBxcF-r9Ibs?si=DcS-yuNuPA4RmYJ9)~~
+23. ~~[The Dictator](https://youtu.be/BegO9nKUsBY?si=5xs4o-G7Lkp3C2SG)~~
