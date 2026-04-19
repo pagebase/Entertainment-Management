@@ -9,3 +9,6 @@
 9. [**Love Machines: How Artificial Intelligence is Transforming Our Relationships** by *James Muldoon*](#)
 10. [**Feeding the Machine** by *Callum Cant* and *James Muldoon*](#)
 11. [**Psycho-Cybernetics** by *Maxwell Maltz*](#)
+12. [**Mindset: The New Psychology of Success** by *Carol Dweck*](#)
+13. [**Dopamine Detox: A Short Guide to Remove Distractions and Get Your Brain to Do Hard Things** by *Thibaut Meurisse*](#)
+14. [**Master Your Emotions: A Practical Guide to Overcome Negativity and Better Manage Your Feelings** by *Thibaut Meurisse*](#)
